@@ -6,3 +6,4 @@ I did two Minor Mods just in case the first one didn't count and that was the on
 
 https://youtu.be/XB37qhJl-LM?si=bdsnOJNa0rD3Pq6Q
 
+https://github.com/RyRod731/John-Lemon-s-Haunted-Jaunt.git
